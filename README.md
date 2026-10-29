@@ -1,0 +1,2 @@
+# miniguia-estudos-notebooklm-Gest-o-Eficiente-e-Sucesso-do-Cliente-nos-Neg-cios-com-Lean
+As fontes apresentadas discutem a aplicação da filosofia lean e de estratégias de sucesso do cliente para otimizar a eficiência operacional e transformar a gestão empresarial. Através do pensamento enxuto, as organizações eliminam desperdícios, mapeiam fluxos de valor e integram departamentos como marketing e vendas com toda a companhia.
